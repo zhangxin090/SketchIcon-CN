@@ -1,0 +1,1 @@
+# SketchIcon-CN
